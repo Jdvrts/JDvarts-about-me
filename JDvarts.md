@@ -2,7 +2,6 @@
 > Jack of all trades, master of none. Better than master of one.
 
 Coming in **strong**-*ly* with training as IT sys-admin and YouTube university education in UI & UX.  
-Now in Spiced Academy Full-Stack dev-op to solidify previous knowledge and obtain new.
 
 ----
 
